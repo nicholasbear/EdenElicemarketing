@@ -1,1 +1,1 @@
-# EdenElicemarketing
+# 산학협력 내용 (보고서, ppt 참고)
